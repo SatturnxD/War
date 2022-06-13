@@ -1,1 +1,1 @@
-# War trabalho foda da escola :)
+trabalho foda da escola :)
